@@ -9,7 +9,7 @@ hi my name is [ Shooting Stars Anon ] ,
 
 you can call me shostar or sho !!
 
-i have no dni . anyone and everyone is free to interact
+i have no dni . anyone and everyone is free to interact yes even you . when i say no dni i mean it
 
 i do not give a single flying fuck about shipping discourse . do Not talk to me about it
 
