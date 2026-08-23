@@ -1,16 +1,16 @@
-## Hi there 👋
+> ###### " Where on God's Earth did a fourteen year old boy learn this kind of mind poisoning ?
+>
+> ###### From your husband . Infinitely . *He belongs more to me than to you .*"
 
-<!--
-**rickmuraijack/rickmuraijack** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+__________________________________________________________________________________________________________________________________
+<br>
 
-Here are some ideas to get you started:
+hi my name is [ Shooting Stars Anon ] ,
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+you can call me shostar or sho !!
+
+i have no dni . anyone and everyone is free to interact
+
+i do not give a single flying fuck about shipping discourse . do Not talk to me about it
+
+i am an adult im a grown ass man playing this pony game ok thatsss alll wubba lubba dub dubbbb
