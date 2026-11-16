@@ -5,12 +5,13 @@
 __________________________________________________________________________________________________________________________________
 <br>
 
-hi my name is [ Shooting Stars Anon ] ,
+hi my name is Shooting Stars Anon ,
 
 you can call me shostar or sho !!
 
-i have no dni . anyone and everyone is free to interact yes even you . when i say no dni i mean it
 
-i do not give a single flying fuck about shipping discourse . do Not talk to me about it
+i have no dni . anyone and everyone is free to interact yes even you . when i say no dni i mean it ! i don't like to be hateful or hostile towards people
 
-i am an adult im a grown ass man playing this pony game ok thatsss alll wubba lubba dub dubbbb
+i enjoy problematic immoral indecent ships and i consider myself pro-fiction, proship, and pro-FUN . youll never catch me harassing people over such minor matters
+
+
